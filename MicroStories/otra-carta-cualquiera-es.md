@@ -8,7 +8,7 @@ headerimage: https://zamackerman.files.wordpress.com/2016/11/otra-carta-cualquie
 
 ![cuentito](https://zamackerman.files.wordpress.com/2016/11/otra-carta-cualquiera.jpeg?w=1700)
 
-Nos quedamos varados en una etapa continua, no sentimos el tiempo pero ya casi se nos termina .
+Nos quedamos varados en una etapa continua, no sentimos el tiempo pero ya casi se nos termina.
 
 Muchos hoy no tienen un objetivo, otros luchan por  conseguir al menos algo, el conformismo ya es normal en estos años ¿De que sirve luchar ya? Si todo va de mal en peor, no pueden engañarnos al decir lo contrario. Los antiguos dicen que si lo "actual” se hubiera detenido o hubiera tomado otro rumbo, tal vez no estaríamos atravesando estos momentos ¡pero qué más da! Y la rematan con una nostálgica frase diciendo: “tiempos buenos eran los de antes”.
 
