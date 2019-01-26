@@ -4,4 +4,8 @@ Lang: es
 Translation: true
 order:1
 
-Acá publicaré como puedes hacer para contactarme
+Twitter: [@zam_ackerman](https://twitter.com/zam_ackerman)
+
+Instagram: [@zam_ackerman](https://www.instagram.com/zam_ackerman/)
+
+Wattpad: [@zam_ackerman](wattpad.com/ZamAckerman/)
